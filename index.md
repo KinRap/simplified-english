@@ -6,16 +6,15 @@ SME - Subject Matter Expert. Someone with specialized knowledge in a specific ar
 
 Have you ever asked your spouse to take out the trash? How often did they not do it? It’s not like they don’t know how to do it.  They just ignore your request. That’s what communication with your Subject Matter Expert (SME) can look like. Especially unresponsive SME. But you can also became friendly very quickly. It's essential to find constructive ways to address the situation. You can create a lasting relationship, full of understanding and positive communication. Here are some suggestions on how. 
 
-## Get to know each other.
+## Know each other
 
 It is important to understand and be understood by your partner. To have effective cooperation with your SME, it is essential to establish a mutual understanding. Learn about the SME's background, expertise, and contributions. Familiarize yourself with their work. Get to know them better. Find common ground and engage in small talk. Show genuine interest in your SME's work. Appreciate SME's contributions. You should trust each other. Trust means that you are a team and have the same goal.
 
 ## Time
 
-In their busy lives, many couples do not have time to talk face-to-face. That’s why they have to find the best way to communicate. It is similar with an SME. They are often busy and juggle multiple responsibilities, so their time is valuable. That’s why you should discuss with them the preferred method of communication. Tailoring your communication style can enhance the efficiency of the information-gathering process. First, choose communication channels that suit the preferences of yourself and the SME. This could include face-to-face meetings, emails, phone calls, discuss with them the preferred method of communication, or any collaboration tolls. Also, remember to respect SME’s time. Clearly communicate the time commitment required for their involvement and work around their schedule. 
+Many couples do not have time to talk. That is why they have to find the best way to communicate. It is similar with an SME. They are often busy and juggle multiple responsibilities, so their time is valuable. That’s why you should discuss with them the preferred method of communication. Tailoring your communication style can enhance the efficiency of the information-gathering process. First, choose communication channels that suit the preferences of yourself and the SME. This could include face-to-face meetings, emails, phone calls, discuss with them the preferred method of communication, or any collaboration tolls. Also, remember to respect SME’s time. Clearly communicate the time commitment required for their involvement and work around their schedule. 
 
 ## Be prepared.
-
 
 In every relationship, some conversations are more important than others. Some of them require preparation, some of them don’t. But your SME’s time is money, so you need to be prepared. Always. By thoroughly preparing for your conversation with them, you increase the likelihood of obtaining valuable information and fostering a positive working relationship. Depending on the subject matter, there may be technical terms or industry-specific jargon. Familiarize yourself with these terms to facilitate a more meaningful and efficient conversation. Understand why you need to speak with the SME and what specific information or insights you are seeking. Develop a list of key questions you want to ask during the conversation. Make sure these questions align with your objectives and are designed to extract the information you need.
 
