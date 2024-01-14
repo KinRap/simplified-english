@@ -3,7 +3,7 @@
 
 Have you ever asked your spouse to take out the trash? Or wash the dishes? Or buy the milk? How often did they not do it?
 
-##It’s not like they don’t know how to do it, or what you’re asking for, or why      these matter to you. They just ignore your request - intentionally or not. 
+## It’s not like they don’t know how to do it, or what you’re asking for, or why      these matter to you. They just ignore your request - intentionally or not. 
 
 ```
 That’s what communication with your Subject Matter Expert (SME) can look like. Especially unresponsive SME.
