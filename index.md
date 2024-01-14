@@ -1,19 +1,14 @@
-# “*Happily ever after*” with Unresponsive SME <!-- omit in toc -->
+# How to get feedback from your SME<!-- omit in toc -->
+
+Glossary:
+SME - Subject Matter Expert. Someone with specialized knowledge in a specific area.
 
 
-Have you ever asked your spouse to take out the trash? Or wash the dishes? Or buy the milk? How often did they not do it?
+Have you ever asked your spouse to take out the trash? How often did they not do it? It’s not like they don’t know how to do it.  They just ignore your request. That’s what communication with your Subject Matter Expert (SME) can look like. Especially unresponsive SME. But you can also became friendly very quickly. It's essential to find constructive ways to address the situation. You can create a lasting relationship, full of understanding and positive communication. Here are some suggestions on how. 
 
-## It’s not like they don’t know how to do it, or what you’re asking for, or why      these matter to you. They just ignore your request - intentionally or not. 
+## Get to know each other.
 
-```
-That’s what communication with your Subject Matter Expert (SME) can look like. Especially unresponsive SME.
-```
-
-But you can also get on like a house on fire. It's essential to find constructive ways to address the situation and create a lasting relationship, full of understanding and positive communication. Here are some suggestions on how. 
-
-## *We all have ten fingers* – getting to know each other.
-
-In any relationship, it is important to understand and be understood by your partner. Similarly, to have effective cooperation with your SME, it is essential to establish a mutual understanding. Learn about the SME's background, expertise, and contributions. Familiarize yourself with their work, publications, or any relevant projects they have been involved in. Get to know them better. Find common ground and engage in small talk. Show genuine interest in your SME's work and appreciate their contributions. Developing trust and rapport can make them more willing to share their knowledge and expertise with you. Trust means that you are a team and that both parties consider each other's needs and interests. 
+It is important to understand and be understood by your partner. To have effective cooperation with your SME, it is essential to establish a mutual understanding. Learn about the SME's background, expertise, and contributions. Familiarize yourself with their work. Get to know them better. Find common ground and engage in small talk. Show genuine interest in your SME's work. Appreciate SME's contributions. Developing trust and rapport can make them more willing to share their knowledge and expertise with you. Trust means that you are a team and that both parties consider each other's needs and interests. 
 
 ## *The clock is ticking*.
 
