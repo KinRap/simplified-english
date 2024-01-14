@@ -8,9 +8,9 @@ Have you ever asked your spouse to take out the trash? How often did they not do
 
 ## Get to know each other.
 
-It is important to understand and be understood by your partner. To have effective cooperation with your SME, it is essential to establish a mutual understanding. Learn about the SME's background, expertise, and contributions. Familiarize yourself with their work. Get to know them better. Find common ground and engage in small talk. Show genuine interest in your SME's work. Appreciate SME's contributions. Developing trust and rapport can make them more willing to share their knowledge and expertise with you. Trust means that you are a team and that both parties consider each other's needs and interests. 
+It is important to understand and be understood by your partner. To have effective cooperation with your SME, it is essential to establish a mutual understanding. Learn about the SME's background, expertise, and contributions. Familiarize yourself with their work. Get to know them better. Find common ground and engage in small talk. Show genuine interest in your SME's work. Appreciate SME's contributions. You should trust each other. Trust means that you are a team and have the same goal.
 
-## *The clock is ticking*.
+## Time
 
 In their busy lives, many couples do not have time to talk face-to-face. That’s why they have to find the best way to communicate. It is similar with an SME. They are often busy and juggle multiple responsibilities, so their time is valuable. That’s why you should discuss with them the preferred method of communication. Tailoring your communication style can enhance the efficiency of the information-gathering process. First, choose communication channels that suit the preferences of yourself and the SME. This could include face-to-face meetings, emails, phone calls, discuss with them the preferred method of communication, or any collaboration tolls. Also, remember to respect SME’s time. Clearly communicate the time commitment required for their involvement and work around their schedule. 
 
