@@ -1,7 +1,11 @@
 # “*Happily ever after*” with Unresponsive SME <!-- omit in toc -->
 
 
-Have you ever asked your spouse to take out the trash? Or wash the dishes? Or buy the milk? How often did they not do it? It’s not like they don’t know how to do it, or what you’re asking for, or why      these matter to you. They just ignore your request - intentionally or not. That’s what communication with your Subject Matter Expert (SME) can look like. Especially unresponsive SME. But you can also get on like a house on fire. It's essential to find constructive ways to address the situation and create a lasting relationship, full of understanding and positive communication. Here are some suggestions on how. 
+Have you ever asked your spouse to take out the trash? Or wash the dishes? Or buy the milk? How often did they not do it?
+
+##It’s not like they don’t know how to do it, or what you’re asking for, or why      these matter to you. They just ignore your request - intentionally or not. 
+
+That’s what communication with your Subject Matter Expert (SME) can look like. Especially unresponsive SME. But you can also get on like a house on fire. It's essential to find constructive ways to address the situation and create a lasting relationship, full of understanding and positive communication. Here are some suggestions on how. 
 
 ## *We all have ten fingers* – getting to know each other.
 
