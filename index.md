@@ -28,7 +28,7 @@ When SMEs find a moment for a conversation face-to-face, clearly define the purp
 
 ## Be Patient
 
-No one wants to live with a person who does not respect us. That will end in a divorce. But you want to live with your SME happily ever after. That is why good manners are mandatory. Your smile can do wonders. Remember to maintain a professional and understanding tone throughout your interactions. Show appreciation for your SME's expertise and the time they dedicate to providing information. A simple ‘thank you” can go a long way in building a positive relationship in the future. Celebrate successful milestones and completed documentation projects. Recognizing and appreciating the collaborative effort fosters a positive working relationship.
+Good manners are mandatory. Your smile is very important. Remember to maintain a professional and understanding tone throughout your interactions. Show appreciation for your SME's expertise and the time they dedicate to providing information. Ude simple ‘thank you”. Celebrate successful milestones and completed documentation projects. Recognizing and appreciating the collaborative effort fosters a positive working relationship.
 
 ## Error!
 What to do when your SME doesn't want to talk to you?
@@ -40,6 +40,4 @@ What to do when your SME doesn't want to talk to you?
    
 ## Summary
 
-Every healthy relationship involves trust, respect, and good communication between partners. In the end, they end up in the same team with the same goals. The same applies to our work. Effective collaboration between a technical writer and SME is crucial for producing accurate and comprehensive technical documentation. By implementing trust, respect, and good communication, technical writers and SMEs can establish a strong collaborative foundation, leading to the creation of high-quality and accurate technical documentation. And then, whole teams can saythat they live happily ever after...
-
-
+Effective collaboration between a technical writer and SME is crucial for producing accurate and comprehensive technical documentation. By implementing trust, respect, and good communication, technical writers and SMEs can establish a strong collaborative foundation. 
