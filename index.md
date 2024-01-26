@@ -8,11 +8,11 @@ Have you ever asked your spouse to take out the trash? How often did they not do
 
 ## Know each other
 
-It is important to understand and be understood by your partner. To have effective cooperation with your SME, it is essential to establish a mutual understanding. Learn about the SME's background, expertise, and contributions. Familiarize yourself with their work. Get to know them better. Find common ground and engage in small talk. Show genuine interest in your SME's work. Appreciate SME's contributions. You should trust each other. Trust means that you are a team and have the same goal.
+It is important to understand and be understood by your partner. It is essential to establish a mutual understanding. Learn about the SME's background, expertise, and contributions. Familiarize yourself with their work. Get to know them better. Find common ground and engage in small talk. Show genuine interest in your SME's work. Appreciate SME's contributions. Trust each other. You are a team, and have the same goal.
 
 ## Time
 
-Many couples do not have time to talk. That is why they have to find the best way to communicate. It is similar with an SME. They are often busy and juggle multiple responsibilities, so their time is valuable. That’s why you should discuss with them the preferred method of communication. Tailoring your communication style can enhance the efficiency of the information-gathering process. First, choose communication channels that suit the preferences of yourself and the SME. This could include face-to-face meetings, emails, phone calls, discuss with them the preferred method of communication, or any collaboration tolls. Also, remember to respect SME’s time. Clearly communicate the time commitment required for their involvement and work around their schedule. 
+Many couples do not have time to talk. That is why they have to find the best way to communicate. It is similar with an SME. They are often busy. Their time is valuable. That is why you should discuss with them the preferred method of communication. It can enhance the efficiency of the information-gathering process. First, choose communication channels that suit the preferences of yourself and the SME. This could include face-to-face meetings, emails, phone calls. Discuss with them the preferred method of communication. Remember to respect SME’s time. Clearly communicate the time commitment required for their involvement and work around their schedule.
 
 ## Be prepared.
 
